@@ -12,7 +12,7 @@ Currently working on generative art in **TouchDesigner**, various random graphic
 
 
 
-[Tunes](https://www.youtube.com/watch?v=i2eYo433JRA)
+[Tunes](https://www.youtube.com/watch?v=i2eYo433JRA) &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; [Email](mailto:miles@hy.tc) &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; [Website](hy.tc)
 
 
 
