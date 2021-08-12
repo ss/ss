@@ -1,5 +1,11 @@
-# idk  <h1> 
-<!---
-ss/ss is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+## TouchDesigner Projects 
+
+
+
+https://user-images.githubusercontent.com/21958992/129110120-da78a921-a222-4446-a3f0-ac309cd99808.mov
+
+
+
+
+
+
