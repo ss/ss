@@ -1,4 +1,4 @@
-active june 2022
+active june 2022, account not for sale
 
 
 
